@@ -1,0 +1,2 @@
+# shop_pic
+ no
